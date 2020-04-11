@@ -1,4 +1,4 @@
-✡️ Support Forum - https://rapidleech.com/forum/
+✡️ Support Forum - https://github.com/justinthoms
 
 ✡️ Last Update - March 16,2020
 
